@@ -1,0 +1,1 @@
+# Es github lietojumu saprotumu pa pusei. 
